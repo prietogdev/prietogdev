@@ -1,3 +1,3 @@
 ## Hey, soy prietogdev!
 
-Soy una jóven apacionado por el mundo de la técnología.
+Soy un jóven apacionado por el mundo de la técnología. Estudiante de bachillerato técnico en la informatica.
